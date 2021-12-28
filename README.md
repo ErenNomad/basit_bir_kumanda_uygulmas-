@@ -1,0 +1,1 @@
+# basit_bir_kumanda_uygulmas-
